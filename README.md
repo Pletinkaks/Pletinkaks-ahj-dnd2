@@ -1,1 +1,0 @@
-# Pletinkaks-ahj-dnd2
